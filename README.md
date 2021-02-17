@@ -9,7 +9,7 @@
 
 - 👯 Je souhaitre collarer et discuter tranquillement avec d'autre développeur sur discord 
 
-- 💬 Interrogez moi sur discord : YaKo_#2743
+- 💬 Interrogez moi sur discord : Nxsko#3278
 
 - 📫 Comment me Joindre: Par Discord j'accepte tout le monde !
 

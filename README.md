@@ -3,7 +3,7 @@
 
  Sur Mon Github tu vas retrouver souvent du Js (JavaScript) 👋
 
-- 🔭 Je travaille actuellement sur Haikyuu ! un bot discord révolutionnaire
+- 🔭 Je travaille actuellement sur un gros bot ! un bot discord révolutionnaire
 
 - 🌱 J'apprend actuellement le JavaScript 
 

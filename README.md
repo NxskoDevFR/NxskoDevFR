@@ -9,7 +9,7 @@
 
 - 👯 Je souhaitre collarer et discuter tranquillement avec d'autre développeur sur discord 
 
-- 💬 Interrogez moi sur discord : Keldrass
+- 💬 Interrogez moi sur discord : Ñërø#5831
 
 - 📫 Comment me Joindre: Par Discord j'accepte tout le monde !
 
